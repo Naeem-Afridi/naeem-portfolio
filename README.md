@@ -16,6 +16,11 @@ Experienced WordPress & Shopify Developer with a strong focus on responsive desi
 - [bestcubanfood.com](https://bestcubanfood.com/)
 - [appliedcompanies.net](https://appliedcompanies.net/)
 - [eatthiscafe.com](https://eatthiscafe.com/)
+- https://786mediagroup.com/
+- https://www.shelbys.ca/
+- https://fluffyfluffy.co.uk/
+- https://wisecompass.com/
+- https://blessedsummit.com/
 
 ---
 
